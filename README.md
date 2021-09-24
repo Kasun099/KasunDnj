@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KasunDnj
 - 👀 I’m interested in modern Technology  
-- 🌱 I’m currently learning UOR-SL 
+- 🌱 I’m currently studying at UOR-SL 
 - 📫 How to reach me ...
 
 <!---
